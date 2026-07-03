@@ -1,0 +1,1 @@
+# home-inventory-manager--privacy-policy
